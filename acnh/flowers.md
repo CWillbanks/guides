@@ -1,1 +1,1 @@
-New version [here](https://aiterusawato.github.io/guides/acnh/flowers.html).
+> This page has been moved [to the website](https://aiterusawato.github.io/guides/acnh/flowers.html).
